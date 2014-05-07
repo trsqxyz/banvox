@@ -14,16 +14,16 @@ As we make it to our destination
 oh huh  
 
 Love strong  
-Our loe is strnger  
+Our love is strnger  
 Hold on  
 hold a little longer  
 We can make it out the other side  
-Belive in me and together we'll rise like a  
+Believe in me and together we'll rise like a  
 Love strong  
 Our loce is stronger  
 Hold on Hole a little longer   
 We can make it ouot the other side  
-Bleave in me and together we'll rise  
+Blieve in me and together we'll rise  
 
 Got a feeling as I look from my shoulder  
 Don't know where it came from  
@@ -33,14 +33,14 @@ Wo oh
 
 Love strong  
 Our love is stronger  
-Hol on  
-Hole a little longer  
+Hold on  
+Hold a little longer  
 We can make it out the other side  
 Believe in me and together we'll rise like a  
 Love strong  
-Our fave is stronger  
+Our love is stronger  
 Hold on  
-old a little longer  
+Hold a little longer  
 We can make it out the other side  
 Believe in me and together we'll rise  
 
@@ -52,7 +52,7 @@ I know here we're going every day
 Love strong  
 Our love is stronger  
 Hold on  
-Hole a little longer  
+Hold a little longer  
 We can make it out the other side  
 Believe in me and together we'll rise like a  
 Love strong  
@@ -65,7 +65,7 @@ Believe in me and together we'll rise
 Love strong  
 Our love is stronger  
 Hold on  
-Hole a little longer  
+Hold a little longer  
 We can make it out the other side  
 Believe in me and together we'll rise like a  
 Love strong  

@@ -25,7 +25,7 @@ I got all you want
 Except for my  
 I Got all you want  
 Except for my  
-I got all you want  
+I got all u want  
 Except for my brain  
 Brain, brain, brain, brain, brain  
 It's been a longtime comin  
@@ -38,14 +38,14 @@ Chorus:
 You only want me for I thing  
 Keep dreaming on coz I'm more than  
 Baby blonde with a cute smile  
-Igot th brains to turn you wild  
-x2  
+I got the brains to turn you wild  
+X2  
 
 Verse 2  
 
 You might b cool  
 But I'd rather be real  
-YOu say the right things  
+You say the right things  
 To the right crowd  
 But when you sit alone  
 On Baby be real  
@@ -53,8 +53,8 @@ How do you feel?
 I write my own song
 I bang my own drums
 We've all got scars  
-So take off your mosk  
-I;'m not a saint and  
+So take off your mask  
+I'm not a saint and  
 I know you're not a sinner  
 But all I'm trying say  
 Is I can buy my own dinner  

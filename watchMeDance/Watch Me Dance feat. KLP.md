@@ -6,7 +6,7 @@ Written by Kristy Lee Peters
 ***  
 Pick a star from the sky  
 Put it in my pocket  
-Keepit safe from the breeze  
+Keep it safe from the breeze  
 Look around  
 Look around  
 Tell me have yout got it  
